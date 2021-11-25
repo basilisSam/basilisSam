@@ -5,4 +5,4 @@ On winters you will find me snowboarding on mountains where in the rest of the s
 
 ## How to reach me 📫 
 
-- [Linkedin](https://www.linkedin.com/in/vasileios-samoladas-a59161226/)
+- [Linkedin](https://www.linkedin.com/in/vasilis-samoladas/)
