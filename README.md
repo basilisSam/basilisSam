@@ -7,4 +7,4 @@ On winters you will find me snowboarding on mountains where in the rest of the s
 
 - [Linkedin](https://www.linkedin.com/in/vasilis-samoladas/)
 - [Personal site](https://vasilissam.netlify.app/)
-- [Email](basilis.samoladas@gmail.com)
+
